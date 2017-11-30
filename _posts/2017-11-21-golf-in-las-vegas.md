@@ -20,7 +20,7 @@ Fuzzy Zoeller, Nicklaus, Palmer, Chi Rodriques and Johnny Miller have actually a
 Aliante Golf Club Las Vegas:
 Aliante is a tough and interesting golf course which covers more than 7,000 lawns. This Golf course is a little raised, which supply distinct playing lines and angles and interesting contours. Some of the highlights are generous landing locations, many water functions and strategic use of trees.
 
-<img src="https://pixabay.com/get/ee3db6072af21c2ad65a5854e5484090e672e1c818b4104097f9c47ea0e5_640.jpg" width="640" height="452" />
+<a href="https://golf4cheap.com/wp-content/uploads/2017/11/discount-golf-clubs.jpg"><img class="alignnone size-large wp-image-1093" src="https://golf4cheap.com/wp-content/uploads/2017/11/discount-golf-clubs-1024x681.jpg" alt="Golf4Cheap" width="980" height="652" /></a>
 
 Panks is once again in news due to its style viewpoint and offering an enjoyable experience to novices and challenge to experts.
 
